@@ -1,1 +1,1 @@
-https://www.figma.com/design/eG1cLTvljMWyhkCMgm0DOk/Landing-page---Доставка-еды?node-id=0-1&p=f&t=j3TirAZGZV6PsQV5-0
+https://www.figma.com/design/XIN0QvtmOuPn0q2z9aPYAA/Многостраничный-сайт---Диджитал-агентство?node-id=3-53&p=f&t=vzJjIwsNIh4drqrU-0
