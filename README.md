@@ -1,1 +1,1 @@
-https://www.figma.com/design/XIN0QvtmOuPn0q2z9aPYAA/Многостраничный-сайт---Диджитал-агентство?node-id=3-53&p=f&t=vzJjIwsNIh4drqrU-0
+https://www.figma.com/design/h0iw6h6R7rGTnOEO00njqL/Landing-page---Недвижимость?node-id=45-2&p=f&t=T9Mf53Bykjju3VXl-0
